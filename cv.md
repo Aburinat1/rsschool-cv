@@ -1,4 +1,4 @@
-:___-|
+
 ### rsschool-cv
 ## Rinat Kopbaev
 ## My Contact Info 
